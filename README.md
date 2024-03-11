@@ -1,1 +1,1 @@
-Il testo d'esame è chiamato Esercizio_COVID- La consegna è Esame Covid
+Il testo d'esame è chiamato Esercizio_COVID- La consegna è Esame Covid(1)
